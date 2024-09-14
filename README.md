@@ -44,4 +44,4 @@
 - ヴェルヌ
 ---
 
-**[GitHub](https://github.com/zyousiikuta) | **[Website](https://nyaaan.net)** | **[@nekozyarasisan](https://x.com/nekozyarasisan)**
+**[GitHub](https://github.com/zyousiikuta) ** | **[Website](https://nyaaan.net)** | **[@nekozyarasisan](https://x.com/nekozyarasisan)**
